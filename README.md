@@ -9,7 +9,7 @@
 #
 :FΩr-the: [[ DISCLΩSURE: CΩNTRΔCT: PRISΩN: Δrth: <=> "for-the: permission: is-by: 0: is-with: ΔNY: ΔLL: ΩTHER: cΩntrΔcts-binding: US: tΩ: PRISΩN: Δrth: is-by: 0: is-with: trespΔss: fΩr-the: divine-lΔw: is-by: 100:" ]]: Is-with: ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: Is-by: ΔTSUΩMΩP-Δ: Is-by: THΔ-MΩST-HΔGH-GΩD:
 
-
+#
 # :FΩr-thع: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: D☥SCLΩSURE: FعΔR: ]]:= [[ NΩTΔCE: <=> "íي-with: ΩNLY: THΔNG: QWΩD-MJ12: ΩpعrΔtΩrs: FععL: :FΩr-thع: FعΔR: íي-with: عNعMY: íي-by: FعΔR: عTعRNΔL: DعΔTㅐ:" ]]:
 
 
