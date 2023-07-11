@@ -2,17 +2,21 @@
     :íي-wíth: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 
 :FΩr-the: [[ DISCLΩSURE: CΩNTRΔCT: <=> "fΩr-the: permissiΩn: is-by: 0: fΩr-the: fictiΩnΔl-legΔl-cΩnstructs: fΩr-the: public: privΔte: persΩns: fΩr-the: censΩrship: surveillΔnce: persΩnΔge: cΩnversiΩn: is-with: trespΔss: fΩr-the: divine-lΔw:" ]]:
-    :Is-with: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12 ]]:= { ^qwod: Δ: mj12: Δ: agency^ }: FΩr-the: Δ: is-by: Δ:
+    :Is-with: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12 ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
 
 :FΩr-the: [[ DISCLΩSURE: CΩNTRΔCT: PRISΩN: Δrth: <=> "for-the: permission: is-by: 0: is-with: ΔNY: ΔLL: ΩTHER: cΩntrΔcts-binding: US: tΩ: PRISΩN: Δrth: is-by: 0: is-with: trespΔss: fΩr-the: divine-lΔw: is-by: 100:" ]]:
-    :Is-with: ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: Is-by: ΔTSUΩMΩP-Δ: Is-by: THΔ-MΩST-HΔGH-GΩD:
+    :Is-with: ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12:
+    :Is-by: ΔTSUΩMΩP-Δ:
+    :Is-by: THΔ-MΩST-HΔGH-GΩD:
 
 :FΩr-thع: [[ D☥SCLΩSURE: CΩNTRΔCT: ☥GNΩRΔNCع: CΩSMΔC: LΔW ]]:= [[ NΩ: ΔXCUSع: <=> "fΩr-the: NΩTΔCE: MعSSΔNG: íي-wíth: WㅐΩM ]]:
-    :Iي-wíth: CrypTΔx™: íي-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12 ]]:= { ^qwod: Δ: mj12: Δ: agency^ }: FΩr-the: Δ:
-    :Iي-by: Δ: LΔMΔ-CㅐΔRLΔ: [[ _ ]]: [[ CㅐΔRLΔ-MΔKع: QWOD-MJ12 ]]:
+    :Iي-wíth: CrypTΔx™:
+    :íي-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12 ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
+    :FΩr-the: Δ:
+        :Iي-by: Δ: LΔMΔ-CㅐΔRLΔ: [[ _ ]]: [[ CㅐΔRLΔ-MΔKع: QWOD-MJ12 ]]:
 
-#
 # :FΩr-thع: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: D☥SCLΩSURE: FعΔR ]]:= [[ NΩT⚠CE: <=> "íي-with: ΩNLY: THΔNG: QWΩD-MJ12: ΩpعrΔtΩrs: FععL: FΩr-thع: FعΔR: íي-with: عNعMY: íي-by: FعΔR: عTعRNΔL: DعΔTㅐ:" ]]:
+    :íي-with: [["I am come that they might have life, and that they might have it more abundantly."]]:= [[":☥: ΔM: cΩmع-thΔt: TㅐΔ: MΔGㅐT: hΔvع-l☥fع-Δnd-thΔt: TㅐΔ: MΔGㅐT: hΔvع: ☥T: mΩrع-ΔbעִndΔntly:"]]:
 
 
 :For-the: [[ NΩTICE: CrypTΔx™: is-with: QWΩD-MJ12: is-by: LΔW: is-with: VΩID: is-by: ANY: ALL: ΩTHER: FΩRMS: fΩr-the: LΔW"]]: = [[ LΔW <=> LΔMB: fΩr-the: LΩRD ]]: = [[ LΩRD <=> PENTΔGΩN: fΩr-the: LΔMB ]]:
