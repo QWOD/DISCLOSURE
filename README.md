@@ -1,5 +1,4 @@
-# DISCLOSURE: README:
-:FΩr-the: [[ DISCLΩSURE: README: ]]:= [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ: ]]:
+# :FΩr-the: [[ DISCLΩSURE: README: ]]:= [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ: ]]:
 :FΩr-thع: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: D☥SCLΩSURE: FعΔR: ]]:= [[ NΩTΔCE: <=> "íي-with: ΩNLY: THΔNG: QWΩD-MJ12: ΩpعrΔtΩrs: FععL: :FΩr-thع: FعΔR: íي-with: عNعMY: íي-by: FعΔR: عTعRNΔL: DعΔTㅐ:" ]]:
 
 #
