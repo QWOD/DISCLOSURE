@@ -5,6 +5,8 @@
 
 :FΩr-the: [[ DISCLΩSURE: CΩNTRΔCT: PRISΩN: Δrth: <=> "for-the: permission: is-by: 0: is-with: ΔNY: ΔLL: ΩTHER: cΩntrΔcts-binding: US: tΩ: PRISΩN: Δrth: is-by: 0: is-with: trespΔss: fΩr-the: divine-lΔw: is-by: 100:" ]]: Is-with: ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: Is-by: ΔTSUΩMΩP-Δ: Is-by: THΔ-MΩST-HΔGH-GΩD:
 
+:FΩr-thع: [[  D☥SCLΩSURE: CΩNTRΔCT: ☥GNΩRΔNCع: CΩSMΔC: LΔW: ]]:= [[ NΩ: ΔXCUSع: <=> "fΩr-the: NΩTΔCE: MعSSΔNG: íي-wíth: WㅐΩM: ]]: Iي-wíth: CrypTΔx™: íي-by: [[ ΔTيעִΩMΩP-DΔRPΔ: QWΩD-MJ12: ]]:= { ^qwod: Δ: mj12: Δ: agency^ }: FΩr-the: Δ: Iي-by: Δ: LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع:
+
 #
 # :FΩr-thع: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: D☥SCLΩSURE: FعΔR: ]]:= [[ NΩTΔCE: <=> "íي-with: ΩNLY: THΔNG: QWΩD-MJ12: ΩpعrΔtΩrs: FععL: :FΩr-thع: FعΔR: íي-with: عNعMY: íي-by: FعΔR: عTعRNΔL: DعΔTㅐ:" ]]:
 
@@ -13,6 +15,8 @@
     is-with: VΩID: is-by: ANY: ALL: ΩTHER: FΩRMS: fΩr-the: LΔW:"]]: = [[ LΔW <=> LΔMB: fΩr-the: LΩRD: ]]: = [[ LΩRD <=> PENTΔGΩN: fΩr-the: LΔMB: ]]:
 
 :FΩr-thع: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: D☥SCLΩSURE: FعΔR: ]]:= [[ NΩTΔCE: <=> "íي-with: ΩNLY: THΔNG: QWΩD-MJ12: ΩpعrΔtΩrs: FععL: :FΩr-thع: FعΔR: íي-with: عNعMY: íي-by: FعΔR: عTعRNΔL: DعΔTㅐ: íي-wíth: WΔ: KNΩW: WㅐΩ: [[ YΔ | WΔ | ㅐΔ | SㅐΔ | TㅐΔM | TㅐΔ ]]: íي-wíth: sL☥CK™: íي-by: ΔTيעִΩMΩP-DΔRPΔ: QWΩD-MJ12: WΔ: Δrع: R☥GㅐT: ㅐΔRع: [[ D_CK ]]™: hΔds™: GΔT: sΩMع: GΩLF-FΩXTRΩT-YΔNKΔ:" ]]:= [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]: Is-with: { ^youtu: Δ: be: SN5awaBMkuY^ }:
+
+:FΩr-the: [[ [[ BLΩΩD: <=> LΔMB: ]]:= [[ LΔMB: <=> WΩRD: ]]:= [[ WΩRD: <=> LΩRD: ]]:= [[ LΩRD: <=> PENTΔGΩN: fΩr-the: 555: BDE: 615: BN: <=> GΩD: HEΔVΔN: ]]:= [[ fΩr-the: Δ: <=> SΩURCE: <=> FΩRCE: ]] ]]:= [[ THΔ-MΩST-HΔGH-GΩD: <=> MJ12-JEHΩVΔ: ]]:
 
 #
 :FΩr-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QWΩD-MJ12: MJ12-ΔGENCY: Tether: ERC20: <=> 0xb337572f45FEa5C3603E873D4F8398795689BB2e ]]: Is-by: { ^crypto: Δ: cΩm: app: rh5gbrhfew^ }:
