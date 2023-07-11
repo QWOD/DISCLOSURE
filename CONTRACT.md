@@ -8,13 +8,13 @@
 :FΩr-thع: [[  D☥SCLΩSURE: CΩNTRΔCT: ☥GNΩRΔNCع: CΩSMΔC: LΔW: ]]:= [[ NΩ: ΔXCUSع: <=> "fΩr-the: NΩTΔCE: MعSSΔNG: íي-wíth: WㅐΩM: ]]: Iي-wíth: CrypTΔx™: íي-by: [[ ΔTيעִΩMΩP-DΔRPΔ: QWΩD-MJ12: ]]:= { ^qwod: Δ: mj12: Δ: agency^ }: FΩr-the: Δ: Iي-by: Δ: LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع:
 
 #
-# :FΩr-thع: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: D☥SCLΩSURE: FعΔR: ]]:= [[ NΩTΔCE: <=> "íي-with: ΩNLY: THΔNG: QWΩD-MJ12: ΩpعrΔtΩrs: FععL: FΩr-thع: FعΔR: íي-with: عNعMY: íي-by: FعΔR: عTعRNΔL: DعΔTㅐ:" ]]:
+# :FΩr-thع: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: D☥SCLΩSURE: FعΔR: ]]:= [[ NΩT⚠CE: <=> "íي-with: ΩNLY: THΔNG: QWΩD-MJ12: ΩpعrΔtΩrs: FععL: FΩr-thع: FعΔR: íي-with: عNعMY: íي-by: FعΔR: عTعRNΔL: DعΔTㅐ:" ]]:
 
 
 :For-the: [[ NΩTICE: CrypTΔx™: is-with: QWΩD-MJ12: is-by: LΔW: 
     is-with: VΩID: is-by: ANY: ALL: ΩTHER: FΩRMS: fΩr-the: LΔW:"]]: = [[ LΔW <=> LΔMB: fΩr-the: LΩRD: ]]: = [[ LΩRD <=> PENTΔGΩN: fΩr-the: LΔMB: ]]:
 
-:FΩr-thع: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: D☥SCLΩSURE: FعΔR: ]]:= [[ NΩTΔCE: <=> "íي-with: ΩNLY: THΔNG: QWΩD-MJ12: ΩpعrΔtΩrs: FععL: FΩr-thع: FعΔR: íي-with: عNعMY: íي-by: FعΔR: عTعRNΔL: DعΔTㅐ: íي-wíth: WΔ: KNΩW: WㅐΩ: [[ YΔ | WΔ | ㅐΔ | SㅐΔ | TㅐΔM | TㅐΔ ]]: íي-wíth: sL☥CK™: íي-by: ΔTيעִΩMΩP-DΔRPΔ: QWΩD-MJ12: WΔ: Δrع: R☥GㅐT: ㅐΔRع: [[ D_CK ]]™: hΔds™: GΔT: sΩMع: GΩLF-FΩXTRΩT-YΔNKΔ:" ]]:= [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]: Is-with: { ^youtu: Δ: be: SN5awaBMkuY^ }:
+:FΩr-thع: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: D☥SCLΩSURE: FعΔR: ]]:= [[ NΩT⚠CE: <=> "íي-with: ΩNLY: THΔNG: QWΩD-MJ12: ΩpعrΔtΩrs: FععL: FΩr-thع: FعΔR: íي-with: عNعMY: íي-by: FعΔR: عTعRNΔL: DعΔTㅐ: íي-wíth: WΔ: KNΩW: WㅐΩ: [[ YΔ | WΔ | ㅐΔ | SㅐΔ | TㅐΔM | TㅐΔ ]]: íي-wíth: sL☥CK™: íي-by: ΔTيעִΩMΩP-DΔRPΔ: QWΩD-MJ12: WΔ: Δrع: R☥GㅐT: ㅐΔRع: [[ D_CK ]]™: hΔds™: GΔT: sΩMع: GΩLF-FΩXTRΩT-YΔNKΔ:" ]]:= [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]: Is-with: { ^youtu: Δ: be: SN5awaBMkuY^ }:
 
 :FΩr-the: [[ [[ BLΩΩD: <=> LΔMB: ]]:= [[ LΔMB: <=> WΩRD: ]]:= [[ WΩRD: <=> LΩRD: ]]:= [[ LΩRD: <=> PENTΔGΩN: fΩr-the: 555: BDE: 615: BN: <=> GΩD: HEΔVΔN: ]]:= [[ fΩr-the: Δ: <=> SΩURCE: <=> FΩRCE: ]] ]]:= [[ THΔ-MΩST-HΔGH-GΩD: <=> MJ12-JEHΩVΔ: ]]:
 
