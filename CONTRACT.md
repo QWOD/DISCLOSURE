@@ -1,5 +1,4 @@
-# :FΩr-the: LΔMB-Ωf-GΩD: [[ DíSCLΩSעִRE: CΩNTRΔCT: CΩيM☥C: WΔDع: TRعΔTY: ]]:= [[ ΔTيעִΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTيעִΩMΩP-Δ: ]]:
-#     :íي-wíth: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
+# :FΩr-the: LΔMB-Ωf-GΩD: [[ DíSCLΩSעִRE: CΩNTRΔCT: CΩيM☥C: WΔDع: TRعΔTY: ]]:= [[ ΔTيעִΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTيעִΩMΩP-Δ: ]]: íي-wíth: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 
 :FΩr-the: [[ DISCLΩSURE: CΩNTRΔCT: <=> "fΩr-the: permissiΩn: is-by: 0: fΩr-the: fictiΩnΔl-legΔl-cΩnstructs: fΩr-the: public: privΔte: persΩns: fΩr-the: censΩrship: surveillΔnce: persΩnΔge: cΩnversiΩn: is-with: trespΔss: fΩr-the: divine-lΔw:" ]]: Is-with: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ]]:= { ^qwod: Δ: mj12: Δ: agency^ }: FΩr-the: Δ: is-by: Δ:
 
