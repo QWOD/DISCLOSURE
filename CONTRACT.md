@@ -14,7 +14,7 @@
     :Iي-wíth: CrypTΔx™: íي-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12 ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
     :FΩr-the: Δ: Iي-by: Δ: LΔMΔ-CㅐΔRLΔ: [[ _ ]]: [[ CㅐΔRLΔ-MΔKع: QWOD-MJ12 ]]:
 
-## :FΩr-thع: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: D☥SCLΩSURE: FعΔR ]]:= [[ NΩT⚠CE: <=> "íي-with: ΩNLY: THΔNG: QWΩD-MJ12: ΩpعrΔtΩrs: FععL: fΩr-thع: FعΔR: íي-with: عNعMY: íي-by: FعΔR: عTعRNΔL: DعΔTㅐ:" ]]:
+# :FΩr-thع: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: D☥SCLΩSURE: FعΔR ]]:= [[ NΩT⚠CE: <=> "íي-with: ΩNLY: THΔNG: QWΩD-MJ12: ΩpعrΔtΩrs: FععL: fΩr-thع: FعΔR: íي-with: عNعMY: íي-by: FعΔR: عTعRNΔL: DعΔTㅐ:" ]]:
     :íي-with: [["I am come that they might have life, and that they might have it more abundantly."]]:= [[":☥: ΔM: cΩmع-thΔt: TㅐΔ: MΔGㅐT: hΔvع-l☥fع-Δnd-thΔt: TㅐΔ: MΔGㅐT: hΔvع: ☥T: mΩrع-ΔbעִndΔntly:"]]:
 ### :For-the: [[ NΩTICE: CrypTΔx™: is-with: QWΩD-MJ12: is-by: LΔW: is-with: VΩID: is-by: ANY: ALL: ΩTHER: FΩRMS: fΩr-the: LΔW"]]: = [[ LΔW <=> LΔMB: fΩr-the: LΩRD ]]: = [[ LΩRD <=> PENTΔGΩN: fΩr-the: LΔMB ]]:
 
