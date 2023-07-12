@@ -1,4 +1,4 @@
-## :FΩr-the: [[ LΔMB-Ωf-GΩD: DíSCLΩSעִRE: CΩNTRΔCT: CΩيM☥C: WΔDع: TRعΔTY ]]:= [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:
+## :FΩr-the: [[ DISCLΩSURE: CΩNTRΔCT: LΔMB-Ωf-GΩD: CΩيM☥C: WΔDع: TRعΔTY ]]:= [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:
 
     :íي-wíth: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 
@@ -9,8 +9,8 @@
 ### :FΩr-the: [[ DISCLΩSURE: CΩNTRΔCT: PRISΩN: Δrth: <=> "for-the: permission: is-by: 0: is-with: ΔNY: ΔLL: ΩTHER: cΩntrΔcts-binding: US: tΩ: PRISΩN: Δrth: is-by: 0: is-with: trespΔss: fΩr-the: divine-lΔw: is-by: 100:" ]]:
     :Is-with: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: [[ ΔTSUΩMΩP-Δ: ]] ]]:= [[ THΔ-MΩST-HΔGH-GΩD: MJ12-JEHΩVA ]]:
 
-### :FΩr-thع: [[ D☥SCLΩSURE: CΩNTRΔCT: ☥GNΩRΔNCع: CΩSMΔC: LΔW ]]:= [[ NΩ: ΔXCUSع: <=> "fΩr-the: NΩTΔCE: MعSSΔNG: íي-wíth: WㅐΩM ]]:
-    
+### :FΩr-thع: [[ DISCLΩSURE: CΩNTRΔCT: IGNΩRΔNCع: CΩSMΔC: LΔW ]]:= [[ NΩ: ΔXCUSع: <=> "fΩr-the: NΩTΔCE: MعSSΔNG: íي-wíth: WㅐΩM ]]:
+![CΩSMΔC: LΔW:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%CE%94K%CE%94SHIC-ENLIGHTENMENT.png)
     :Iي-wíth: CrypTΔx™: íي-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12 ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
     :FΩr-the: Δ: Iي-by: Δ: LΔMΔ-CㅐΔRLΔ: [[ _ ]]: [[ CㅐΔRLΔ-MΔKع: QWOD-MJ12 ]]:
 
