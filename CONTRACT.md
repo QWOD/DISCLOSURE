@@ -1,3 +1,5 @@
+# :FΩr-the: [[ CΩNTRΔCT: LΔMB-Ωf-GΩD: ]]:
+![CΩNTRΔCT: LΔMB-Ωf-GΩD:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%CE%94K%CE%94SH-CITY.png)
 ## :FΩr-the: [[ DISCLΩSURE: CΩNTRΔCT: LΔMB-Ωf-GΩD: CΩيM☥C: WΔDع: TRعΔTY ]]:= [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:
 
     :íي-wíth: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
