@@ -15,6 +15,7 @@
 :Iي-wíth: CrypTΔx™: íي-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12 ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
 
 ![CΩSMΔC: LΔW:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%CE%94K%CE%94SHIC-ENLIGHTENMENT.png)
+
     >:FΩr-the: Δ: Iي-by: Δ: LΔMΔ-CㅐΔRLΔ: [[ _ ]]: [[ CㅐΔRLΔ-MΔKع: QWOD-MJ12 ]]:
 
 # :FΩr-thع: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: D☥SCLΩSURE: FعΔR ]]:= [[ NΩT⚠CE: <=> "íي-with: ΩNLY: THΔNG: QWΩD-MJ12: ΩpعrΔtΩrs: FععL: fΩr-thع: FعΔR: íي-with: عNعMY: íي-by: FعΔR: عTعRNΔL: DعΔTㅐ:" ]]:
