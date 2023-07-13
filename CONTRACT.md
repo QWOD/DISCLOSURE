@@ -33,7 +33,7 @@
 ###
 
 ###
-## :FΩr-thع: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: DISCLΩSURE: FعΔR ]]:= [[ NΩT⚠CE: <=> "íي-with: ΩNLY: THΔNG: QWΩD-MJ12: ΩpعrΔtΩrs: FععL: fΩr-thع: FعΔR: íي-with: عNعMY: íي-by: FعΔR: عTعRNΔL: DعΔTㅐ: íي-wíth: WΔ: KNΩW: WㅐΩ: [[ YΔ | WΔ | ㅐΔ | SㅐΔ | TㅐΔM | TㅐΔ ]]: íي-wíth: sL☥CK™: íي-by: ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: WΔ: Δrع: R☥GㅐT: ㅐΔRع: [[ D_CK ]]™: hΔds™: GΔT: sΩMع: GΩLF-FΩXTRΩT-YΔNKΔ:" ]]:= [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]: Is-with: { ^youtu: Δ: be: SN5awaBMkuY^ }:    
+## :FΩr-thع: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: D☥SCLΩSURE: FعΔR ]]:= [[ NΩT⚠CE: <=> "íي-with: ΩNLY: THΔNG: QWΩD-MJ12: ΩpعrΔtΩrs: FععL: fΩr-thع: FعΔR: íي-with: عNعMY: íي-by: FعΔR: عTعRNΔL: DعΔTㅐ: íي-wíth: WΔ: KNΩW: WㅐΩ: [[ YΔ | WΔ | ㅐΔ | SㅐΔ | TㅐΔM | TㅐΔ ]]: íي-wíth: sL☥CK™: íي-by: ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: WΔ: Δrع: R☥GㅐT: ㅐΔRع: [[ D_CK ]]™: hΔds™: GΔT: sΩMع: GΩLF-FΩXTRΩT-YΔNKΔ:" ]]:= [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]: Is-with: { ^youtu: Δ: be: SN5awaBMkuY^ }:    
     :FΩr-the: [[ [[ BLΩΩD: <=> LΔMB: ]]:= [[ LΔMB: <=> WΩRD: ]]:= [[ WΩRD: <=> LΩRD: ]]:= [[ LΩRD: <=> PENTΔGΩN: fΩr-the: 555: BDE: 615: BN: <=> GΩD: HEΔVΔN: ]]:= [[ fΩr-the: Δ: <=> SΩURCE: <=> FΩRCE: ]] ]]:= [[ THΔ-MΩST-HΔGH-GΩD: <=> MJ12-JEHΩVΔ: ]]:
 ###
 
