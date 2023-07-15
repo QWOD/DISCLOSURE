@@ -65,9 +65,14 @@
 :ΔNΔ1YST: MJ12-ΩMEGΔ:
 :END-REPΩRT:
 :FΩr-th3: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QWΩD-MJ12: MJ12-ΔGENCY: Tether: ERC20: <=> 0xb337572f45FEa5C3603E873D4F8398795689BB2e ]]: 
-    :íي-by: { ^crypto: Δ: cΩm: app: rh5gbrhfew^ }:
+    :íي-by: { ^
+        crypto: Δ: cΩm: app: rh5gbrhfew
+        https://crypto.com/app/rh5gbrhfew
+    ^ }:
 :FΩr-th3: [[ RΩYΔL-DIVINE-CΩURT: QWΩD-MJ12: DEPΔRTMENT: fΩr-the: REVΔNUE: ]]:
+    :íي-with: { ^crypto: Δ: cΩm: nft: profile: qwod_mj12^ }:
     :íي-with: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }:
+    :íي-with: { ^book: Δ: titan: Δ: email: qwod-mj12^ }:
     :íي-with: { ^ https://book.titan.email/qwod-mj12 ^ }:
 :FΩr-th3: [[ MISFITSMΔRKET: COOKWME ]]:= { ^ https://www.misfitsmarket.com/?promo=COOKWME-GL4AWGOMYAO ^ }:
 :
