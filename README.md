@@ -3,7 +3,7 @@
 
 ###
 ## :FΩr-the: [[ :they dΩn't knΩw whΔt they cΔn dΩ: ]]:= [[ THEY: will-Δll: íي-with: DEΔTH: íي-by: THΔ-MΔST-HΔGH-GΔD: íي-with: ΔLL: THEY: cΔn: DΩ: ]]:
-    :íي-with: PRΩJ-GRP: ΩMعGΔ: WΔLCΩMع:
+    :íي-with: SPعC-PRΩJ-GRP: ΩMعGΔ: WΔLCΩMع:
     :íي-with: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: D☥SCLΩSURE: FعΔR ]]:=
 ##        [[ NΩT⚠CE: <=> "W⚠RNΩ: íي-with: ΩNLY: THΔNG: QWΩD-MJ12: ΩpعrΔtΩrs: FععL: fΩr-thع: FعΔR: íي-by: عNعMY: íي-with: FعΔR: عTعRNΔL: DعΔTㅐ:" ]]:
 ###
