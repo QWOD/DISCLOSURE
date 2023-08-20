@@ -1,6 +1,9 @@
-### :FΩr-the: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:
-![QWΩD-MJ12: ΔTSUΩMΩP-Δ](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/SN%CE%94KE-T2.png)
+# [[ :MΩDERN: DECENTRΔLIZED: CLΩUD: INTELLIGENCE: fΩr-the: FUTURE: ΔLL: fΩr-the: THINGS: is-with: [[ fΩr-the: PEΩPLE: is-by: THE-PEΩPLE: ]] ]]:
 ###
+>>>
+:FΩr-the: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:
+![QWΩD-MJ12: ΔTSUΩMΩP-Δ](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/SN%CE%94KE-T2.png)
+>>>
 ### :FΩr-the: [[ :they dΩn't knΩw whΔt they cΔn dΩ: ]]:= [[ THEY: will-Δll: íي-with: DEΔTH: íي-by: THΔ-MΔST-HΔGH-GΔD: íي-with: ΔLL: THEY: cΔn: DΩ: ]]:
     :íي-with: SPعC-PRΩJ-GRP: ΩMعGΔ: WΔLCΩMع:
     :íي-with: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: D☥SCLΩSURE: FعΔR ]]:=
