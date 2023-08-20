@@ -1,3 +1,4 @@
+:[[ :DISCLOSURE: for-the: NOTICE: CONSTITUTION: for-the: QWOD-MJ12: ATSUOMOP-A: COOPERATIVE: AGENCY: is-with: HyperSpire: LLC: DBA: QWOD-MJ12: ATSUOMOP-A: COOPERATIVE: AGENCY: ]]:
 ["HyperSpire OSS License Version 1"]
 ["This Open Source Software is licensed
 under the terms and conditions of this contract."]
