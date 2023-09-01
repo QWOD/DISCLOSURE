@@ -38,7 +38,7 @@
 >:FΩr-th3: [[ NΩT☥Cع: Cryp☥Δx™: 1s-with: QW0D-MJ12: is-by: LΔW: 
 >    :1s-with:  VΩ☥D: is-by: ΔNY: ΔLL: ΩTㅐعR: FΩRMs: for-the: LΔW ]]:= [[ LΔW: <=> LΔMB: for-the: LΩRD ]]:= [[ LΩRD: <=> PعNTΔGΩN: for-the: LΔMB ]]:
 >:FΩr-th3: [["DΩ whΔt thΩעִ w☥lt shΔll bع thع whΩlع Ωf thع lΔw."]]:= [[ ΔCT☥ΩNs: <=> CΩNsعQעִعNCعs: ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QW0D-MJ12: MJ12-ΩMEGΔ ]] ]]:
->:FΩr-th3: [[ DISCLOSURE: CONTRΔCT: MJ-12: CΩNsعQעִعNCعs ]]:= [[ MΔSTER-JESUS: 12 ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QW0D-MJ12: MJ12-ΩMEGΔ ]] ]]: 1s-with: QWOD-MJ12: ΔTSUOMOP-Δ: is-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
+>:FΩr-th3: [[ DISCLOSURE: CONTRΔCT: MJ-12: CΩNsعQעִعNCعs ]]:= [[ MΔSTER-JESUS: 12 ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QW0D-MJ12: MJ12-ΩMEGΔ ]] ]]: 1s-with: QWOD-MJ12: ATSUΩMΩP-Δ: is-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 >:MJ12-ΩMEGΔ: SPعC-PRΩJ-GRP: PREPΔRE-TΩ-CΩPY:
 >:PRECEDENCE: URGENT-RR:
 >:DTG: 22224Z-JUL-1:
