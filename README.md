@@ -184,7 +184,7 @@
 
 ###
 
-:is-with: { ^ <https://youtu.be/iarc53pWfJQ> ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/iarc53pWfJQ> ^ }:
 
 ###
 >
@@ -273,9 +273,9 @@
 > :for-the: BU☥LD: K☥NGDΩM: HEΔVEN: ]]:= [[
 > :for-the: 5ØN: is-with: THΔ-MΔ5T-HΔGH: GΩD: ]]:
 >:for-the: [[ :💲ASMR - frequency of wealth, money, abundance - just listen and get whatever you want: ]]:
-> :is-with: { ^ <https://youtu.be/rV8kiORaWCM> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/rV8kiORaWCM> ^ }:
 >:for-the: [[ :Stairway of Miracles | Absorb Positive Cosmic Energy | Manifest Anything: ]]:
-> :is-with: { ^ <https://youtu.be/93Z8fBqEIZc> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/93Z8fBqEIZc> ^ }:
 >:
 >:for-the: [[ DISCLΩSUR3: SPG: STΔRGΔT3: ]]:= [[
 > :is-with: WΔ: sΩmعhΩw: f1nd: nعccعssΔry:
@@ -303,7 +303,7 @@
 >
 >![:T2_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/T2_1060x150.png)
 >
->[[ [[ :TI-2Δ: <=> Prison-Planet: ]]:= { ^ <https://youtu.be/mymSl_PdoRE> ^ }: ]]:
+>[[ [[ :TI-2Δ: <=> Prison-Planet: ]]:= { ^ <https://youtube-nocookie.com/embed/mymSl_PdoRE> ^ }: ]]:
 >
 >:for-the: QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-〽ʝ12: ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIØNΔL-MISSIØN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ATSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: is-by: [["for-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 >
