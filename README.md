@@ -8,6 +8,7 @@
     :is-with: SPعC-PRΩJ-GRP: ΩMعGΔ: WΔLCΩMع:
     :is-with: [[ ATSU0MΩP-DΔRPΔ: QW🚫D-〽ʝ12: D☥SCLΩSURE: FعΔR ]]:=
 ###        [[ N🚫T⚠️CE: <=> "W⚠️RN🚫: is-with: 0NLY: THΔNG: QW🚫D-〽ʝ12: ΩpعrΔtΩrs: FععL: fΩr-thع: FعΔR: is-by: عNعMY: is-with: FعΔR: عTعRNΔL: DعΔTㅐ:" ]]:
+>
 
 ### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _ : C: Ω: M: ]]:= CΔPTURE: { ^ <https://rumble.com/c/c-3415786> ^ }: ]]:= :[[ :🟠: [[ W⚠️RN🚫: CrΔp☥Δx™: SPG: MQ: ØMΔGΔ: reverse-prΩgrΔmming-experi-mentΔl-cΩntrΩl-grΩup: ΔLGØRITHM: DETECTED: ]]: ]]
 >
