@@ -14,7 +14,7 @@
 >
 ###
 >
-# [[ :∅PERATIØNAL-EDUCATIØN: ]]
+# :[[ :🚫PΔ𓂀T☥∅NΔL-EDUCΔT☥∅N: ]]
 >
 ###
 >
@@ -172,9 +172,6 @@
 >
     https://www.amazon.com/dp/0738749087?ref_=cm_sw_r_cp_ud_dp_SPJD0P3QPSPKMQZ24XJF&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=34e72c10d3992d9a2c00bd7669ce9400&camp=1789&creative=9325
 >
-###
-
-###
 
 ###
 >
