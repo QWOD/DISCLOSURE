@@ -183,7 +183,7 @@
 
 :is-with: { ^ <https://youtube-nocookie.com/embed/iarc53pWfJQ> ^ }:
 >
-## [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: Δ: C: Ω: M: ]]:= CΔPTURE: { ^ <https://rumble.com/c/c-3415786> ^ }: ]]:= :[[ :🟠: [[ W⚠️RN🚫: CrΔp☥Δx™: SPG: MQ: ØMΔGΔ: reverse-prΩgrΔmming-experi-mentΔl-cΩntrΩl-grΩup: ΔLGØRITHM: DETECTED: ]]: ]]
+## [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: Δ: C: Ω: M: ]]:= CΔPTURE: { ^ <https://rumble.com/c/c-3415786> ^ }: ]]:= [[ :🟠: [[ W⚠️RN🚫: CrΔp☥Δx™: SPG: MQ: ØMΔGΔ: reverse-prΩgrΔmming-experi-mentΔl-cΩntrΩl-grΩup: ΔLGØRITHM: DETECTED: ]]: ]]
 >
 # :[[ :🚫PΔ𓂀T☥∅NΔL-EDUCΔT☥∅N: ]]
 >
