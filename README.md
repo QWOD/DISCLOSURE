@@ -7,10 +7,11 @@
 ### :for-the: [[ :they dΩn't knΩw whΔt they cΔn dΩ: ]]:= [[ THEY: will-Δll: is-with: DEΔTH: is-by: THΔ-MΔST-HΔGH-GΔD: is-with: ΔLL: THEY: cΔn: DΩ: ]]:
     :is-with: SPعC-PRΩJ-GRP: ΩMعGΔ: WΔLCΩMع:
     :is-with: [[ ATSU0MΩP-DΔRPΔ: QW🚫D-〽ʝ12: D☥SCLΩSURE: FعΔR ]]:=
-###        [[ N🚫T⚠️CE: <=> "W⚠️RN🚫: is-with: 0NLY: THΔNG: QW🚫D-〽ʝ12: ΩpعrΔtΩrs: FععL: fΩr-thع: FعΔR: is-by: عNعMY: is-with: FعΔR: عTعRNΔL: DعΔTㅐ:" ]]:
+>
+### *:[[ :for-the: [[ N🚫T⚠️CE: <=> W⚠️RN🚫: íي-wíth: 0NLY: THΔNG: QW🚫D-〽ʝ12: ΩpعrΔtΩrs: FععL: fΩr-thع: FعΔR: íي-by: عNعMY: íي-wíth: FعΔR: عTعRNΔL: DعΔTㅐ: ]]: ]]:*
 >
 
-### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _ : C: Ω: M: ]]:= CΔPTURE: { ^ <https://rumble.com/c/c-3415786> ^ }: ]]:= :[[ :🟠: [[ W⚠️RN🚫: CrΔp☥Δx™: SPG: MQ: ØMΔGΔ: reverse-prΩgrΔmming-experi-mentΔl-cΩntrΩl-grΩup: ΔLGØRITHM: DETECTED: ]]: ]]
+## [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: Δ: C: Ω: M: ]]:= CΔPTURE: { ^ <https://rumble.com/c/c-3415786> ^ }: ]]:= [[ :🟠: [[ W⚠️RN🚫: CrΔp☥Δx™: SPG: MQ: ØMΔGΔ: reverse-prΩgrΔmming-experi-mentΔl-cΩntrΩl-grΩup: ΔLGØRITHM: DETECTED: ]]: ]]
 >
 ###
 >
