@@ -18,7 +18,7 @@
 
 ## :FΩr-the: [[ DISCLΩSURE: CΩNTRΔCT: PRISΩN: Δrth: <=> "for-the: permission: is-by: 0: is-with: ΔNY: ΔLL: ΩTHER: cΩntrΔcts-binding: US: tΩ: PRISΩN: Δrth: is-by: 0: is-with: trespΔss: fΩr-the: divine-lΔw: is-by: 100:" ]]
 
-    :Is-with: [[ ATS0SSDEV-DΔRPΔ: QWΩD-MJ12: [[ ATS0SSDEV-Δ: ]] ]]:= [[ THΔ-MΩST-HΔGH-GΩD: MJ12-JEHΩVA ]]:
+    :Is-with: [[ ATS0SSDEV-DΔRPΔ: QWΩD-MJ12: [[ ATS0SSDEV-Δ: ]] ]]:= [[ THΔ-MΩST-HΔGH-GΩD: MJ12-JEH0VΔH ]]:
 
 ###
 
