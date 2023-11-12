@@ -1,0 +1,13 @@
+
+:QUANTUM-WARFARE-OPERATIONS-DIVISION:
+:555: EN: BDE:
+:QWOD-MJ12: EN: BN:
+:ATSOSSDEV-A: CO:
+
+:DEPARTMENT-OF-DEFENSE:
+:1000: Defense: Pentagon:
+:Washington: DC: 20301-1000:
+
+:DOCUMENT-ID: { ^                                      ^ }:
+
+:[[ :LAWFUL-NOTICE: <=> "[[ YOU: <=>                                      ]]: are hereby lawfully notified to cease and desist all contact with the [[ LEGAL-ENTITY: <=> formerly-known-as:                                     : ]]: Failure to cooperate falls under harassment and stalking laws meant to protect the victims of abuse and violence. YOU are not permitted to contact LEGAL-ENTITY defined above neither are you permitted to speak of nor communicate with any PERSON or LEGAL-ENTITY about the LEGAL-ENTITY above nor are YOU permitted to seek information or contact details for this [[ PERSON: <=> LEGAL-ENTITY: ]]: for the ongoing criminal investigation of which this PERSON is the primary key witness. No PERSON or LEGAL-ENTITY is permitted to know where this LEGAL-ENTITY resides nor to seek contact details thereof as this directly puts the witness at risk for further violence and abuse. Failure to cooperate will result in maximum punishment under current harassment and stalking laws present within YOUR legal jurisdiction." ]]:
