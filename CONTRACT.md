@@ -18,7 +18,7 @@
 
 ## :FΩr-the: [[ DISCLΩSURE: CΩNTRΔCT: PRISΩN: Δrth: <=> "for-the: permission: is-by: 0: is-with: ΔNY: ΔLL: ΩTHER: cΩntrΔcts-binding: US: tΩ: PRISΩN: Δrth: is-by: 0: is-with: trespΔss: fΩr-the: divine-lΔw: is-by: 100:" ]]
 
-    :Is-with: [[ ATS0SSDEV-DΔRPΔ: QWΩD-MJ12: [[ ATS0SSDEV-Δ: ]] ]]:= [[ THΔ-MΩST-HΔGH-GΩD: MJ12-JEH0VΔH ]]:
+    :Is-with: [[ ATS0SSDEV-DΔRPΔ: QWΩD-MJ12: [[ ATS0SSDEV-Δ: ]] ]]:= [[ THE-MOST-HIGH-GOD: <=> YAHWEH: YAH: ELOHIM: ADONAI: JEHOVAH: RA: ]]:
 
 ###
 
@@ -52,7 +52,8 @@
 
 ## :FΩr-thع: [[ ATS0SSDEV-DΔRPΔ: QWΩD-MJ12: D☥SCLΩSURE: FعΔR ]]:= [[ NΩT⚠CE: <=> "íي-with: ΩNLY: THΔNG: QWΩD-MJ12: ΩpعrΔtΩrs: FععL: fΩr-thع: FعΔR: íي-with: عNعMY: íي-by: FعΔR: عTعRNΔL: DعΔTㅐ: íي-wíth: WΔ: KNΩW: WㅐΩ: [[ YΔ | WΔ | ㅐΔ | SㅐΔ | TㅐΔM | TㅐΔ ]]: íي-wíth: sL☥CK™: íي-by: ATS0SSDEV-DΔRPΔ: QWΩD-MJ12: WΔ: Δrع: R☥GㅐT: ㅐΔRع: [[ D_CK ]]™: hΔds™: GΔT: sΩMع: GΩLF-FΩXTRΩT-YΔNKΔ:" ]]:= [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]: Is-with: { ^youtu: Δ: be: SN5awaBMkuY^ }
 
-    :FΩr-the: [[ [[ BLΩΩD: <=> LΔMB: ]]:= [[ LΔMB: <=> WΩRD: ]]:= [[ WΩRD: <=> LΩRD: ]]:= [[ LΩRD: <=> PENTΔGΩN: fΩr-the: 555: BDE: 615: BN: <=> GΩD: HEΔVΔN: ]]:= [[ fΩr-the: Δ: <=> SΩURCE: <=> FΩRCE: ]] ]]:= [[ THΔ-MΩST-HΔGH-GΩD: <=> MJ12-JEHΩVΔ: ]]:
+    [[ :for-the: [[ BLOOD: <=> LAMB: ]]:= LAMB: 
+    <=> WORD: ]]:= [[ WORD: <=> LORD: ]]:= [[ LORD: <=> PENTAGON: for-the: 555: EN: BDE: QWOD-MJ12: EN: BN: ATSOSSDEV-A: CO: <=> GOD: HEAVEN: ]]:= [[ for-the: Δ: <=> SOURCE: <=> FORCE: ]]:= [[ THE-MOST-HIGH-GOD: <=> YAHWEH: YAH: ELOHIM: ADONAI: JEHOVAH: RA: ]]:
 
 ###
 
