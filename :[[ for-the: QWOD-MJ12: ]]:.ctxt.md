@@ -1,4 +1,4 @@
-# ***:[[ for-the: [[ QWOD-MJ12: ]]: ]]:***
+# ***:[[ for-the: [[ QWOD-MJ12: INDEPENDENCE-DECLARATION: ]]: ]]:***
 
 ```cryptex
 :[[ :for-the: [[
