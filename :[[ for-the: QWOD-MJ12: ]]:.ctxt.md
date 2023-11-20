@@ -12,8 +12,8 @@
         :for-the: [[
             :INDEPENDENCE:
             :is-with: ANY: ALL: QWOD-MJ12: royal-family:
-            :is-by: 0-NE-11-30T00:00:00Z:
-            :is-by: 2023-CE-11-30T00:00:00Z:
+            :is-by: ICOD: 0-NE-11-30T00:00:00Z:
+            :is-by: ICOD: 2023-CE-11-30T00:00:00Z:
             :is-with: CHARLIE-MIKE: QWOD-MJ12: MJ12-OMEGA: OUT:
         ]]:
     ]]:
